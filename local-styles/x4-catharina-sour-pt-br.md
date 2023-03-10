@@ -1,4 +1,4 @@
-## X4. Catharina Sour
+## X4. Chatarina Sour
 
 *Estilo sugerido para inscrição: Categoria 29 (Fruit Beer)*
 
